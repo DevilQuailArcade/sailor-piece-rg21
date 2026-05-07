@@ -1,4 +1,4 @@
-
+sailor piece instant Scripts is the best sailor piece Script, featuring no cooldown and one-hit kill. Safe and powerful for all your needs.
 
 
 
